@@ -1,4 +1,6 @@
-new profile! srry its so empty
+new profile! bfyi i am autistic! i may not get what you mean or take things too literal so please explain kindly <3
+
+interests : danganronpa, ponytown, pokemon, homestuck, deltarune, horror, mlp, nintendo, yokai watch, outlast, resident evil, silent hill, puppet combo
 
 int w care! banner by reki
 
